@@ -1,5 +1,5 @@
 # **WECOME TO NICKIMINAJI'S BLOOKET HACKS**
-*Blooket hacks for* ***everyone**!
+Blooket hacks for* ***everyone**!
 
 # **HOW TO USE THE BLOOKET HACKS**
 You can put javascript: on your search bar with the code without using inspect!*
