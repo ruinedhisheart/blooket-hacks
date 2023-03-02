@@ -1,4 +1,5 @@
-# **BLOOKET HACKS**
+# **WECOME TO NICKIMINAJI'S BLOOKET HACKS**
 *Blooket hacks for* ***everyone**! You can put javascript: on your search bar with the code without using inspect!*
 
-# **INMPORTANT**
+# **IMPORTANT**
+**I am NOT responsible for you getting in trouble or banned**. So use these hacks **wisely**!
